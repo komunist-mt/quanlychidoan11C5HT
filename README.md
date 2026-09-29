@@ -1,2 +1,0 @@
-# quanlychidoan11C5HT
-APP QUẢN LÍ CHI ĐOÀN 11C5 - CRE: HARRYKEN
